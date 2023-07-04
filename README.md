@@ -1,2 +1,1 @@
-God is good
-thou
+dsgbDfgfDfbhadgtnhsfgnxfdgnxg
